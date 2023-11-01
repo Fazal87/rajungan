@@ -1,0 +1,2 @@
+# rajungan
+Mintor sepi
